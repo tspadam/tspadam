@@ -2,7 +2,7 @@
 - 👀 I’m interested in finding and placing talented professionals in rewarding positions
 - 🌱 I’m currently learning how to use github and code to build my business
 - 💞️ I’m looking to collaborate on placing candidates
-- 📫 How to reach me http://talentsoultions.pro
+- 📫 How to reach me http://talentsolutions.pro
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Played volleyball in high school
 
